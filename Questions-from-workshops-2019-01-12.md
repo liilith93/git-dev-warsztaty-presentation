@@ -8,7 +8,7 @@ Osoba nr. 3
 Pytanie:
 
 Osoba nr. 4
-Pytanie:
+Pytanie: Brak pytañ :)
 
 Osoba nr. 5
 Pytanie:
